@@ -1,1 +1,1 @@
-#Nome: Pedro Lucas Neves dos Santos N 31
+#Nome: Pedro Lucas Neves dos Santos Nr. 31
